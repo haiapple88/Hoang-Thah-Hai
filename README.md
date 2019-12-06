@@ -1,2 +1,0 @@
-# Hoang-Thanh-Hai
-acitivatorsim
